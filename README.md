@@ -1,3 +1,5 @@
+<img width="250" height="300" alt="prof" src="https://github.com/user-attachments/assets/1d3b646b-8fb0-48bf-b12a-d6b27979e87d" />
+
 # Adil Khichi
 
 ## E-Commerce Consultant & Digital Marketing Expert
