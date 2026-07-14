@@ -25,9 +25,9 @@ Professional E-Commerce Consultant with experience in TikTok Shop, Amazon, eBay,
 ✅ Store Growth & Scaling
 
 ### Performance Highlights
-📈 TikTok Shop Sales: $3,209+
+📈 TikTok Shop Sales: $43,209+
 
-📈 TikTok Shop Sales: £3,241+
+📈 TikTok Shop Sales: £32,241+
 
 📈 Managed Multiple E-Commerce Stores
 
